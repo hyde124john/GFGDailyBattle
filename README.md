@@ -1,1 +1,1 @@
-# GFGDailyBattle
+# Praise The Lord
